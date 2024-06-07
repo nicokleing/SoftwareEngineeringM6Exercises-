@@ -1,1 +1,0 @@
-# SoftwareEngineeringM6Exercises-
